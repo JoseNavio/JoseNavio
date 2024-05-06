@@ -1,2 +1,2 @@
-### The strenght of the wolf is the pack :wolf:
+### The strength of the wolf is the pack :wolf:
 
